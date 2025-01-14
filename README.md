@@ -22,7 +22,10 @@ Trap bait <br>
 <img height="200" alt="image" src="https://github.com/user-attachments/assets/ea6958db-133a-4d29-bb19-e61e53dcbe35" />
 
 <br><br><br>
-4)
+4) Bread and Chease wrapped with thread
+<br>
+<img height="200" alt="image" src="https://github.com/user-attachments/assets/743e77d3-affd-46f2-9218-07cfe56feb83" />
+
 
 
 <br><br><br>
