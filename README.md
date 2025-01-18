@@ -29,7 +29,15 @@ Trap bait <br>
 
 
 <br><br><br>
-5)
+5)   <br>
+one of the following:   <br> 
+Bacon   <br>
+Slim Jim   <br>
+Penut butter  <br>
+dog food     <br>
+cat food.  <br>
+Salted Camerelized PopCorn  <br>
+
 <br>
 
 
