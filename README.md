@@ -3,7 +3,11 @@ Trap bait <br>
 
 1) Black walnuts + peanut butter + a trail of black oil sunflower seeds (https://www.youtube.com/watch?v=WR0BYQxSKcw&lc=UgyrPlrjOCe1zNOJC8F4AaABAg)
 <br>
-<img height="300" alt="image" src="https://github.com/user-attachments/assets/968b44ac-3457-4cc2-ac40-69e65bc2aa2a" />     <img height="300" alt="image" src="https://github.com/user-attachments/assets/ab463405-dda7-4c32-9a96-67187afde2b7" />  <img height="300" alt="image" src="https://github.com/user-attachments/assets/e81e9c85-bd4d-4439-a748-65344afe673f" />
+<img height="300" alt="image" src="https://github.com/user-attachments/assets/968b44ac-3457-4cc2-ac40-69e65bc2aa2a" />     <img height="300" alt="image" src="https://github.com/user-attachments/assets/ab463405-dda7-4c32-9a96-67187afde2b7" />
+
+ <img width="300" alt="image" src="https://github.com/user-attachments/assets/d09796b4-3a21-4459-a421-cf5175fcfd9a" />
+
+ <!--img height="300" alt="image" src="https://github.com/user-attachments/assets/e81e9c85-bd4d-4439-a748-65344afe673f" /-->
 
 
 <br><br><br>
