@@ -55,7 +55,12 @@ Salted Camerelized PopCorn  <br>
 <br>
 <br>
 <br>
+
+Block Rat entrance
 <br>
+<img width="431" alt="image" src="https://github.com/user-attachments/assets/224da5a2-e0bc-4a85-b6f1-3ed76764f234" />
+
 <br>
+Smart Dispenser 12 oz. Pestblock Insulating Spray Foam Sealant
 <br>
 <br>
