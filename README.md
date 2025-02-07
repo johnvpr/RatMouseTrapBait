@@ -64,9 +64,9 @@ Block Rat entrance
 <br> 19 gage mesh
 <br> <img width="148" alt="image" src="https://github.com/user-attachments/assets/5d7fe123-a8a2-4899-9d77-a9a024d7703b" />
 
-<br>
-<br>
-<br>
+<br>  in sewer fent
+<br> sewer drain acid
+<br> wd40
 <br>
 <br>
 <br>
