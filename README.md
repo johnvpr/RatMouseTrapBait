@@ -60,11 +60,10 @@ Block Rat entrance
 <br>
 <img width="431" alt="image" src="https://github.com/user-attachments/assets/224da5a2-e0bc-4a85-b6f1-3ed76764f234" />
 
-<br>
-Smart Dispenser 12 oz. Pestblock Insulating Spray Foam Sealant
-<br>
+<br> Smart Dispenser 12 oz. Pestblock Insulating Spray Foam Sealant
 <br> 19 gage mesh
-<br>
+<br> <img width="148" alt="image" src="https://github.com/user-attachments/assets/5d7fe123-a8a2-4899-9d77-a9a024d7703b" />
+
 <br>
 <br>
 <br>
